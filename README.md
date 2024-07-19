@@ -1,4 +1,4 @@
-👋 Hi, I’m Yaxin Zheng!
+👋 Hi, I’m Yaxin Zheng! Welcome to my finance journey on this memorable date, July 19th/20th, 2024!
 
 - I’ll be updating my notes from reading the top finance journals from the past five years. 
 
